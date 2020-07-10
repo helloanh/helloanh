@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![dance](https://i.ibb.co/M8FgXTZ/anh-hello.gif)
+![anh-dance](https://i.ibb.co/qJKqxjB/ezgif-com-gif-maker.gif)
 
 - 🔭 I’m currently working on wrapping up content as a course instructor for Azure Cloud Developer NanoDegree Course.    
 - 🌱 I’m currently learning on Python Time Series analysis for maritime supply-chain logistics.    
