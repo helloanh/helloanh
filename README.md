@@ -7,4 +7,6 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm converting a school bus into a tiny-house/camper now.  
 
+Adios,
+
 ![anh-dance](https://i.ibb.co/qJKqxjB/ezgif-com-gif-maker.gif)
