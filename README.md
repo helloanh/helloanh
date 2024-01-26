@@ -5,7 +5,7 @@
 - 💬 Ask me about [Pi Network](https://medium.com/@akhoang88/4-reasons-why-you-should-and-should-not-jump-on-the-new-pi-coin-cryptocurrency-craze-857d651866cf)  
 - 📫 How to reach me:  [LinkedIn](https://www.linkedin.com/in/anhkimhoang/)  
 - 😄 Pronouns: she/her. Identity: Queer and out and proud 🌈🌈🌈.
-- ⚡ Fun fact: I'm learning TIG welding right now to make furniture for my ADU build. I have 2 dogs and 1 cat.
+- ⚡ Fun fact: I'm learning TIG welding right now to make furniture for my ADU build and truck pop-up camper. I have 2 dogs and 1 cat.
 
 Adios,
 
